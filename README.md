@@ -8,6 +8,9 @@ i made this in around a hour was pretty happy with the result , i have made this
 <img width="1028" height="553" alt="Screenshot 2026-10-14 215115" src="https://github.com/user-attachments/assets/bc34030f-2777-419b-8b8b-6a72584ff10e" />
 
 ## 3d printed :D
+
+<img width="900" height="1200" alt="image" src="https://github.com/user-attachments/assets/c84d9622-281e-4e18-8fc3-28ebd45b5175" />
+
 <img width="900" height="1200" alt="image" src="https://github.com/user-attachments/assets/32496c33-7cf1-48ff-9102-f23be4b049c4" />
 
 
